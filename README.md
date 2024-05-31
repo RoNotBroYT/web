@@ -1,3 +1,3 @@
 #  RoNotBroYT
 
-this my new wonderful blog 
+this my wonderful blog 
